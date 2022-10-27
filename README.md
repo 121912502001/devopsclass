@@ -1,2 +1,23 @@
-# devopsclass
-devops training
+# devopsclassTDUOFDEFUE
+EWFGRTR
+RHTRSHETA
+RTEHT
+YJYUGK
+YT
+JHER
+AWGQ
+FW
+EQW
+F
+RETH
+YJ
+
+6
+53
+45
+46
+7
+8
+7
+9
+Rining
